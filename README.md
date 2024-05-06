@@ -1,4 +1,4 @@
-## Seasoned Technical Product/Program Manager driving innovation at the intersection of Technology & Strategy
+## Sr. Technical Product/Program Manager driving innovation at the intersection of Technology & Strategy
 Passionate, growth focused and customer centric Product Leader, Leveraging 15 years of technology experience to provide thought leadership, steer innovative vision and roadmap for products that touch millions of Customers' lives everyday.
 
 ### Work Experience
