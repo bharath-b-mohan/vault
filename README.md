@@ -1,5 +1,5 @@
-## Sr. Technical Product/Program Manager driving innovation at the intersection of Technology & Strategy
-Passionate, growth focused and customer centric Product Leader, Leveraging 15 years of technology experience to provide thought leadership, steer innovative vision and roadmap for products that touch millions of Customers' lives everyday.
+## Sr. Technical Product/Program Manager | Product Vision, Roadmap, Technology & Strategy
+Passionate, growth focused and customer centric Product Leader, leveraging 15 years of technology experience to provide thought leadership, steer innovative vision and roadmap for products that touch millions of Customers' lives everyday.
 
 ### Work Experience
 Sr. Technical Product Manager, Amazon US Prime and Marketing Tech
