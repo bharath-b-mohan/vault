@@ -1,4 +1,4 @@
-## Sr. Tech PM | Adept in Product Vision, Roadmap, Technology & Strategy
+## Sr. Tech PM | Adept in Product Vision, Technology & Strategy
 Passionate, growth focused and customer centric Product Leader, leveraging 15 years of technology experience to provide thought leadership and steer innovative vision and roadmap for products that touch millions of Customers' lives everyday.
 
 ### Work Experience
