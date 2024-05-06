@@ -1,4 +1,4 @@
-## Seasoned Product Manager | Product Vision, Roadmap, Technology & Strategy
+## Seasoned Product Manager | Steering Product Vision, Roadmap at Technology & Strategy Nexus
 Passionate, growth focused and customer centric Product Leader, leveraging 15 years of technology experience to provide thought leadership, steer innovative vision and roadmap for products that touch millions of Customers' lives everyday.
 
 ### Work Experience
